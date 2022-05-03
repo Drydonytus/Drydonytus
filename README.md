@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on ...
 - Puzzle like projects
 - 📫 How to reach me ...
-- Here or on Insta: Lifeofagangstnerd
+- Here or email barnescameron1997@gmail.com
 
 <!---
 Drydonytus/Drydonytus is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
